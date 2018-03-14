@@ -1,6 +1,7 @@
 # Historie nám říká, co můžeme čekat po Brexitu a Trumpovi
 Autor: [Tobias Stone](https://medium.com/@tswriting)
 
+
 Zdá se, že lidstvo zase vstupuje do jednoho z těch hloupých období, které na sebe uvaluje v docela pravidelných intervalech. Načrtnu zde názory založené na informacích. Mohou se ukázat jako správné, mohou se ukázat jako špatné, a mým úmyslem je posouvat širší dialog v této věci a stát se jeho součástí.
 
 
@@ -36,14 +37,14 @@ V dané době ale lidem nedochází, že nastupují na cestu, která je zavede d
 3. většina lidí nečte, nemyslí, nezpochybňuje nebo neslyší protichůdné názory.
 
 
-Trump tohle dělá v Americe. Ti z nás, kteří mají trochu pojem o historii, to vidí v barvách. Přečtěte si tento  geniální, dlouhý esej z New York magazine, pochopíte, jak všechno tohle popsal už Platón, a jak se vše děje přesně, jak předpověděl. Trump říká, že z Ameriky udělá zase velmoc, přestože Amerika je podle téměř veškerých statistik velmoc i v současné době. Používá vášeň, hněv a rétoriku stejně jako všichni jeho předchůdci — a charismatický narcis, který se krmí davy, roste s nimi a vytváří kolem sebe kult. Za to, že se Amerika dostala do bodu, kdy je připravená na Trumpa, můžete vinit společnost, politiky, média, ale širší historický rámec ukazuje, že tohle se děje stejným způsobem pokaždé, když se někdo jako Trump dostane k moci.
+Trump tohle dělá v Americe. Ti z nás, kteří mají trochu pojem o historii, to vidí v barvách. Přečtěte si tento geniální, dlouhý esej z New York magazine, pochopíte, jak všechno tohle popsal už Platón, a jak se vše děje přesně, jak předpověděl. Trump říká, že z Ameriky udělá zase velmoc, přestože Amerika je podle téměř veškerých statistik velmoc i v současné době. Používá vášeň, hněv a rétoriku stejně jako všichni jeho předchůdci — a charismatický narcis, který se krmí davy, roste s nimi a vytváří kolem sebe kult. Za to, že se Amerika dostala do bodu, kdy je připravená na Trumpa, můžete vinit společnost, politiky, média, ale širší historický rámec ukazuje, že tohle se děje stejným způsobem pokaždé, když se někdo jako Trump dostane k moci.
 
 
 Na ještě širším poli, když ještě více oddálíme pohled, je Rusko diktaturou s charismatickým vůdcem, který kolem sebe vytváří kult postavený na strachu a vášni. Turecko už je v té fázi také. Maďarsko, Polsko a Slovensko tam míří, a po celé Evropě čekají v záloze další Trumpové a Putinové ve skutečnosti financovaní Putinem, až se společenská vlna zlomí jejich směrem.
 Měli bychom se sami sebe ptát, co bude naší chvílí arcivévody Ferdinanda. Jak v podstatě malá událost strhne řetězec dalšího období masového ničení? Brexit, Trumpa i Putina vidíme izolovaně. Ale svět nefunguje izolovaně — všechny věci spolu souvisí a navzájem se ovlivňují. Mám přátele, kteří byli pro Brexit, a říkají mi “aha, takže i za tohle podle tebe může Brexit??” Ale neuvědomují si, že vlastně ano – historici vystopují rovné čáry od zjevně nesouvisejících událostí k obrovským politickým a společenským změnám jako Brexit.
 
 
-Brexit  —  událost, kdy skupina naštvaných lidí vyhrála hádku  —  snadno inspiruje další skupiny naštvaných lidí, aby podnítili podobnou hádku, Brexit jim dodá naději, že mohou vyhrát. Už jen to samotné spouští řetězové reakce. Jaderný výbuch nezpůsobí rozštěpení jednoho atomu, ale dopad toho prvního atomu, který způsobí štěpení mnoha okolních atomů, a ty způsobí štěpení dalších mnoha atomů, a tak dále. Bombu pak představuje exponenciální růst počtu štěpených atomů a jejich společná energie. Takhle první světová válka začala, a ironicky tím druhá světová válka skončila.
+Brexit — událost, kdy skupina naštvaných lidí vyhrála hádku  —  snadno inspiruje další skupiny naštvaných lidí, aby podnítili podobnou hádku, Brexit jim dodá naději, že mohou vyhrát. Už jen to samotné spouští řetězové reakce. Jaderný výbuch nezpůsobí rozštěpení jednoho atomu, ale dopad toho prvního atomu, který způsobí štěpení mnoha okolních atomů, a ty způsobí štěpení dalších mnoha atomů, a tak dále. Bombu pak představuje exponenciální růst počtu štěpených atomů a jejich společná energie. Takhle první světová válka začala, a ironicky tím druhá světová válka skončila.
 
 
 Tady je příklad toho, jak by mohl Brexit vést k nukleární válce:
@@ -74,6 +75,7 @@ A co můžeme dělat? No, s ohledem na historii asi nic moc. Liberální intelek
 
 
 (Možná to píšu jen proto, aby si mě historie pamatovala jako jednoho z lidí, kteří viděli, jak se to blíží).
+
 
 ---------
 
