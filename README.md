@@ -1,5 +1,5 @@
 # Historie nám říká, co můžeme čekat po Brexitu a Trumpovi
-<center>autor: [Tobias Stone](https://medium.com/@tswriting)</center>
+Autor: [Tobias Stone](https://medium.com/@tswriting)
 
 text
 
