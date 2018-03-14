@@ -1,5 +1,5 @@
 # Historie nám říká, co můžeme čekat po Brexitu a Trumpovi
-Autor: [Tobias Stone](https://medium.com/@tswriting)
+Autor: [Tobias Stone](https://medium.com/@tswriting), [original text](https://medium.com/@tswriting/history-tells-us-what-will-happen-next-with-brexit-trump-a3fefd154714)
 
 
 Zdá se, že lidstvo zase vstupuje do jednoho z těch hloupých období, které na sebe uvaluje v docela pravidelných intervalech. Načrtnu zde názory založené na informacích. Mohou se ukázat jako správné, mohou se ukázat jako špatné, a mým úmyslem je posouvat širší dialog v této věci a stát se jeho součástí.
