@@ -32,9 +32,9 @@ Takhle to bylo s Hitlerem, ale také s Mussolinim, Stalinem, Putinem, Mugabem a 
 V dané době ale lidem nedochází, že nastupují na cestu, která je zavede do období ničení. Myslí si, že mají pravdu, šklebící se vzteklé davy je povzbuzují, jejich kritici jsou terčem posměchu. Tento cyklus, jak jsme ho viděli na příkladu od Versailleské smlouvy k nástupu Hitlera k moci, k druhé světové válce, se teď asi děje znovu. Ale stejně jako u předchozích cyklů to většina lidí nevidí, protože:
 
 
-1. se dívají jen na přítomnost, ne na minulost nebo budoucnost,
-2. se dívají jen kolem sebe, ne na to, jak spolu události souvisí globálně,
-3. většina lidí nečte, nemyslí, nezpochybňuje nebo neslyší protichůdné názory.
+ 1. se dívají jen na přítomnost, ne na minulost nebo budoucnost,
+ 2. se dívají jen kolem sebe, ne na to, jak spolu události souvisí globálně,
+ 3. většina lidí nečte, nemyslí, nezpochybňuje nebo neslyší protichůdné názory.
 
 
 Trump tohle dělá v Americe. Ti z nás, kteří mají trochu pojem o historii, to vidí v barvách. Přečtěte si tento geniální, dlouhý esej z New York magazine, pochopíte, jak všechno tohle popsal už Platón, a jak se vše děje přesně, jak předpověděl. Trump říká, že z Ameriky udělá zase velmoc, přestože Amerika je podle téměř veškerých statistik velmoc i v současné době. Používá vášeň, hněv a rétoriku stejně jako všichni jeho předchůdci  –   a charismatický narcis, který se krmí davy, roste s nimi a vytváří kolem sebe kult. Za to, že se Amerika dostala do bodu, kdy je připravená na Trumpa, můžete vinit společnost, politiky, média, ale širší historický rámec ukazuje, že tohle se děje stejným způsobem pokaždé, když se někdo jako Trump dostane k moci.
