@@ -89,4 +89,7 @@ A co můžeme dělat? No, s ohledem na historii asi nic moc. Liberální intelek
 All rights reserved, author: [Tobias Stone](https://medium.com/@tswriting)
 
 
+Original text does not contain the subheadings.
+
+
 Translated from English to Czech by: [Gabriela Fialova](http://bit.ly/gfialova)
