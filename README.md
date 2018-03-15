@@ -18,18 +18,21 @@ Ale určujícím znakem lidí je nezdolnost. Nám se teď zdá samozřejmé, že
 Ale pro lidi, kteří to přímo zažili, stejně jako světové války, sovětské hladomory, holokaust, muselo být nepředstavitelné, že by se z toho lidstvo mohlo kdy dostat. Pád říše římské, Černá smrt, španělská inkvizice, třicetiletá válka, válka růží, anglická občanská válka... Seznam je dlouhý. Jde o události masového ničení, z nichž se lidstvo vzpamatovalo a posunulo dál, často v ještě lepším stavu než před nimi.
 
 
+## Při zpětném pohledu je všechno jasné
 Na místní úrovni v čase si lidé myslí, že všechno je v pohodě, ale pak se věci rychle vymknou z ruky a nejdou už zastavit, a my si způsobíme další masové poškození. Pro lidi žijící uprostřed toho všeho je těžké vidět, jak se to děje, a těžké to pochopit. Historikům později všechno dává smysl a vidíme jasně, jak jedna věc vedla k druhé. Během Stoletého výročí bitvy na Sommě mi došlo, že byla přímým důsledkem [zavraždění rakouského arcivévody v Bosně](https://en.wikipedia.org/wiki/Assassination_of_Archduke_Franz_Ferdinand_of_Austria). Velmi pochybuji, že by si kdokoliv v té době pomyslel, že zabití jednoho evropského aristokrata povede ke smrti 17 milionů lidí.
 
 
 Chci tím říct, že se jedná o cyklus. Děje se znovu a znovu, ale protože většina lidí má historickou perspektivu 50–100 let dozadu, nevidí, že se to děje zase. Jak se rozkrývaly události vedoucí k první světové válce, několik geniálních myslí začalo vysílat varování, že něco je hodně špatně, že síť smluv naskrz Evropou by mohla vést k válce, ale všichni byli odmávnuti s tím, že jsou hysteričtí, šílení nebo blázni, jako se to vždycky děje –  stejně jako ti, kdo mají nyní obavy z Putina, Brexitu a Trumpa.
 
 
+## Scénář hledání obětních beránků je vždycky stejný
 Pak hned po skončení války, která měla ukončit všechny války, jsme si dali další. Opět to pro historika bylo vcelku předvídatelné. Přivoďte lidem pocit, že ztratili vládu nad svou zemí a osudem, a začnou hledat obětní beránky, charismatický lídr se chopí všeobecné nálady a toho obětního beránka konkretizuje. Mluví rétorikou bez detailů a vybubnovává vztek a nenávist. Masy pak brzy začnou jednat jako jeden člověk, bez jakékoliv logiky za svými činy, a tento celek už nelze zastavit.
 
 
 Takhle to bylo s Hitlerem, ale také s Mussolinim, Stalinem, Putinem, Mugabem a tolika dalšími. Mugabe je velmi dobrý příklad. Vybičoval společnost kolem sebe k národnímu hněvu a nenávisti mířenými na bílou menšinu, která vlastnila pozemky (a zároveň náhodou uměla farmařit), ve velkém populistickém gestu zabral její půdu, aby ji rozdělil lidem, což nakonec zcela položilo ekonomiku i zemědělský průmysl, a zanechal lidi s jejich novými pozemky, ale hladovějící. Viz také hladomory vytvořené Sovětským svazem a [hladomor zapříčiněný v minulém století čínskými komunisty](https://en.wikipedia.org/wiki/Great_Chinese_Famine), při němž zahynulo 20– 40 milionů lidí. Zdá se nemyslitelné, že lidé mohli způsobit situaci, v níž bezdůvodně zemřou desítky milionů lidí, ale děláme to, a děláme to znovu a znovu.
 
 
+## Žijeme přítomností. Málo studujeme, čteme a konfrontujeme své názory
 V dané době ale lidem nedochází, že nastupují na cestu, která je zavede do období ničení. Myslí si, že mají pravdu, šklebící se vzteklé davy je povzbuzují, jejich kritici jsou terčem posměchu. Tento cyklus, jak jsme ho viděli na příkladu od Versailleské smlouvy k nástupu Hitlera k moci, k druhé světové válce, se teď asi děje znovu. Ale stejně jako u předchozích cyklů to většina lidí nevidí, protože:
 
 
@@ -48,6 +51,7 @@ Měli bychom se sami sebe ptát, co bude naší chvílí arcivévody Ferdinanda.
 Brexit  – událost, kdy skupina naštvaných lidí vyhrála hádku  –  snadno inspiruje další skupiny naštvaných lidí, aby podnítili podobnou hádku, Brexit jim dodá naději, že mohou vyhrát. Už jen to samotné spouští řetězové reakce. Jaderný výbuch nezpůsobí rozštěpení jednoho atomu, ale dopad toho prvního atomu, který způsobí štěpení mnoha okolních atomů, a ty způsobí štěpení dalších mnoha atomů, a tak dále. Bombu pak představuje exponenciální růst počtu štěpených atomů a jejich společná energie. Takhle první světová válka začala, a ironicky tím druhá světová válka skončila.
 
 
+## Jak může vypadat nový arcivévodský scénář?
 Tady je příklad toho, jak by mohl Brexit vést k nukleární válce:
 
 
@@ -60,6 +64,7 @@ S roztříštěnou EU a oslabeným NATO Putin, čelící dlouhodobé ekonomické
 Rozdělená Evropa, s vůdci Francie, Maďarska, Polska, Slovenska a dalších, kteří jsou nyní proruští a protievropští, a financovaní Putinem, přehlasují volání po sankcích nebo vojenské odezvě. NATO reaguje pomalu: [Trump do toho nechce Ameriku zapojovat](https://www.washingtonpost.com/opinions/global-opinions/how-a-trump-presidency-could-destabilize-europe/2016/07/21/9ec38a20-4f75-11e6-a422-83ab49ed5e6a_story.html) a velká část Evropy je lhostejná nebo jakoukoliv akci blokuje. Rusko neuvidí žádný skutečný odpor proti svému jednání, postoupí dál do Lotyšska a pak do východního Estonska a Litvy. Baltské státy vyhlásí Rusku válku a zahájí protiútoky, protože nyní jsou už terčem invaze a nemají jinou možnost. Polovina Evropy stojí na jejich straně, několik zemí zůstává neutrálních, ale několik jich stojí na straně Ruska. Kam se v tomto případě postaví Turecko? Jak na novou válku v Evropě zareaguje ISIS? Kdo použije jadernou zbraň jako první?
 
 
+## Vstupujeme do dalšího období ničení
 A to je jen jeden arcivévodský scénář. Možných scénářů je nespočet, protože komplexita toho množství součástek v pohybu je masivní. A samozřejmě mnohé scénáře nepovedou vůbec k ničemu. Podle historie nás však čeká další období ničení, a podle historie všechno nasvědčuje tomu, že do něj právě vstupujeme.
 
 
@@ -69,6 +74,7 @@ Přijde to způsobem, který nebudeme očekávat, a vymkne se to kontrole tak ry
 Posmívat se odborníkům a ignorovat je, jako to lidé dělají kolem Brexitu i Trumpa, je stejné jako ignorovat lékaře, který vám říká, že byste měli přestat kouřit, a potom zjistit, že trpíte nevyléčitelnou rakovinou. Maličkosti vedou k nezastavitelnému ničení, kterému se dalo zabránit, kdybyste poslouchali a trochu se zamysleli. Ale lidé dál kouří a dál na to umírají. To je úděl lidstva.
 
 
+## Liberální intelektuálové spory obvykle prohrávají
 Takže mám pocit, že je to všechno nevyhnutelné. Nevím, co nás čeká, ale vstupujeme do špatné fáze. Bude to nepříjemné pro ty, kteří ji přímo prožijí, možná se to rozvine v něco pekelného, co si teď vůbec nedovedeme ani představit. Lidstvo z toho vyjde na druhé straně, vzpamatuje se a posune se dál. Lidská rasa bude zase v pořádku. Změní se, možná i k lepšímu. Ale pro ty v centru pekelného dění  –  pro tisíce tureckých učitelů, kteří právě přišli o práci, pro turecké novináře a právníky ve vězení, pro ruské disidenty v gulazích, pro mladé zraněné lidi ležící ve francouzských nemocnicích po teroristickém útoku, pro ty všechny to bude jejich Somma.
 
 
