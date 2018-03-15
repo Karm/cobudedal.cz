@@ -8,9 +8,7 @@ Zdá se, že lidstvo zase vstupuje do jednoho z těch hloupých období, které 
 Mými obory jsou archeologie, ale také historie a antropologie. Vedou mě k tomu, abych zkoumal velké vzorce v historii. Mou teorií je, že většina lidí na historii pohlíží jako na omezenou zkušenost, kterou jim předali jejich rodiče a prarodiče, takže dejme tomu 50– 100 let zpět. Chceme-li se dostat hlouběji, musíme číst, studovat a učit se rozplétat propagandu, které se při výkladu dějin nedá vyhnout. Ve zkratce: Kdybych na vysoké škole odevzdal práci, v níž bych nesrovnal alespoň dva, ne-li tři, protichůdné názory na nějaké téma, pohořel bych. Vzít jeden výklad událostí a kázat podle něj je z hlediska komparativní analytické metodiky výzkumu, která utváří jádro britské akademické sféry, zcela nedostatečné. (Nemůžu mluvit za jiné systémy, ale určitě nejsou v tomto směru všechny stejné.)
 
 
-##Válčí se vlastně pořád
-
-
+## Válčí se vlastně pořád
 Když se tedy na historii podíváme z dálky, zjistíme, že lidstvo pravidelně vstupuje do fáze masového ničení, a obecně se do nich do určité míry uvrtává samo. [Tento praktický seznam ukazuje všechny války na časové ose.](http://www.datesandevents.org/events-timelines/24-timeline-of-war.htm) Války jsou vlastně pro lidstvo přirozený stav, ale tu a tam přijde něco většího. Zajímám se o Černou smrt, která zdevastovala Evropu. Úvod [Boccacciova Decameronu popisuje Florencii ve spárech moru](http://www.eyewitnesstohistory.com/plague.htm). Je to stejně nepředstavitelné jako bitva na Sommě, Hirošima nebo holokaust. Myslím to tak, že se tam nedokážete přenést a představit si, jaké to bylo. Pro ty uprostřed moru to muselo být jako konec světa.
 
 
